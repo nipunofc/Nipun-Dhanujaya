@@ -29,9 +29,13 @@ I believe in the power of technology to solve real-world problems. Whether I am 
 
 ## 🔗 Connect With Me
 *   **Portfolio:** [nipunofc.store](https://nipunofc.store)
+  
 *   **LinkedIn:** [linkedin.com/in/nipundhanujaya](https://www.linkedin.com/in/nipundhanujaya)
+    
 *   **Twitter:** [x.com/NipunDhanujaya](https://x.com/NipunDhanujaya)
-*   **Pinterest:** [pinterest.com/nipundhanujaya](https://pinterest.com/nipunofc)
+   
+*   **Pinterest:** [pinterest.com/nipunofc](https://pinterest.com/nipunofc)
 
+*   **Facebook:** [Facebook.com/nipunofc](https://facebook.com/nipunofc)
 ---
 *Built by Nipun Dhanujaya | Founder of N TECH OFC*
